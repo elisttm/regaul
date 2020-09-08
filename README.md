@@ -7,3 +7,5 @@ hi, i'm Regaul. if you're here, you're probably a friend. i'll probably add more
 to my new friend group
 >discord.gg/EZe8vwY<
 -->
+
+hi guys im regaul :) :) :): ):): ):) :): ): ):): ):):):):):)))
